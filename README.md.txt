@@ -1,3 +1,0 @@
-# Curriculum Vitae
-
-Español / English
